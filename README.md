@@ -1,0 +1,2 @@
+# gonjali
+lagi apdet jali
